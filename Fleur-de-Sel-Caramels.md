@@ -2,21 +2,23 @@
 
 https://www.epicurious.com/recipes/food/views/fleur-de-sel-caramels-230778
 
-Active Time	45 min
-Total Time	2 3/4 hr (includes cooling)
-Ingredients
+- Active Time: 45 min
+- Total Time: 2 3/4 hr (includes cooling)
+
+Makes about 40 candies
 
 ## Ingredients
 
-Makes about 40 candies
-1 cup heavy cream
-5 tablespoons unsalted butter, cut into pieces
-1 teaspoon fleur de sel*
-1 1/2 cups sugar
-1/4 cup light corn syrup
-1/4 cup water
-Special Equipment
-parchment paper; a deep-fat thermometer
+- 1 cup heavy cream
+- 5 tablespoons unsalted butter, cut into pieces
+- 1 teaspoon fleur de sel*
+- 1 1/2 cups sugar
+- 1/4 cup light corn syrup
+- 1/4 cup water
+
+## Special Equipment
+- Parchment paper
+- A deep-fat thermometer
 
 ## Directions
 
