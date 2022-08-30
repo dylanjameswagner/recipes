@@ -2,7 +2,7 @@
 
 http://allrecipes.com/recipe/10813/best-chocolate-chip-cookies/
 
-Yields 24 servings
+- Yields 24 servings
 
 ## Ingredients
 
